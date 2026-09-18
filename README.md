@@ -214,4 +214,4 @@ Ashampoo PowerUp is a full free version, offering all features unlocked and all 
 Get started with your **free Ashampoo PowerUp download** today and optimize your Windows experience like never before!
 
 ---
-**Last updated:** 2026-09-18 19:16:12 UTC
+**Last updated:** 2026-09-18 22:00:23 UTC
